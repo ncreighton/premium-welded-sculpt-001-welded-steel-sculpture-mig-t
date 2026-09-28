@@ -1,0 +1,2 @@
+# premium-welded-sculpt-001-welded-steel-sculpture-mig-t
+Tracking MIG tack points, material specs, and sculpture iterations across fragmented notes is killing your creative flow. The Welded Steel Sculpture &amp; MIG Tack Hub consolidates every detail of your welded steel projects into one organized, searchable Notion workspace.  Stop juggling spreadsheets, sketches, and scattered documents. This purpose-buil
